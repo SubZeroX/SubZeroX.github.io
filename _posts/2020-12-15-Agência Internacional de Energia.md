@@ -1,0 +1,47 @@
+---
+layout: post
+title: You're up and running!
+---
+
+Sigla EIA
+
+![](Imagens/Pasted%20image%2020201121154704.png) [^1]
+
+[^1]: Qual o maior pouluidor para CO2 segundo a EIA?
+
+[^2]
+
+[^2]: Qual o segundo maior poluidor segundo a EIA?
+
+## Next
+[[23 11 2020
+## Processo:
+Created: [[21-11-2020]]
+*+2 *  *Ctrl+0*
+- [ ] Molho
+
+*+7*  *Ctrl+1*
+
+- [ ] Primeira
+
+*+10*  *Ctrl+2*
+
+- [ ] Segunda
+
+*+15*  *Ctrl+3*
+
+- [ ] Terceira
+
+*+30*  *Ctrl+4*
+
+- [ ] Quarta
+
+*+60*  *Ctrl+5*
+
+- [ ] Quinta
+
+*+120*  *Ctrl+6*
+
+- [ ] Sexta
+
+*+240*  *Ctrl+7*
