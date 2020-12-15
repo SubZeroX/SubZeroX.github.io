@@ -1,0 +1,3 @@
+Definido como a quantidade de calor necessária para transformar um grama de determinada substância do estado sólido para o estado líquido, na temperatura de fusão. Em contrapartida, para a água se solidificar, isto é, tornar-se gelo, ela precisa liberar muito calor, o que requer exposição a temperaturas inferiores a 0 °C por tempo prolongado. 
+
+O alto calor de fusão da água protege os organismos vivos dos efeitos danosos do congelamento; se a água de suas células congelasse facilmente, os seres vivos morreriam devido aos cristais formados dentro delas, que causariam danos às membranas celulares.- [ ] Processo 

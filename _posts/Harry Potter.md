@@ -1,0 +1,1 @@
+O termo “sangue ruim”, traduzido do inglês “mudblood” é usado como xingamento na série para designar os bruxos que não são filhos exclusivamente de bruxos e é definido como “o pior nome de que se pode chamar um bruxo de origem trouxa”.

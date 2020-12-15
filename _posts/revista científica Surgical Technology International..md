@@ -1,0 +1,1 @@
+Manter a cabeça flexionada para baixo, na direção do queixo, você sobrecarrega a coluna cervical.

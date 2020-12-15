@@ -1,0 +1,5 @@
+Também chamado ácido cianídrico ou ácido prússico, é gás incolor com típico odor amargo, lembrando amêndoas. É um composto extremamente volátil. Puro, pode ser encontrado tanto na forma líquida quanto gasosa, devido ao seu baixo ponto de ebulição e grande volatilidade. Os sais de cianeto são cáusticos e pode ocorrer sensação de queimação na língua e inflamação da mucosa gástrica após a ingestão. Em casos de inalação pode ocorrer irritação nasal. 
+
+Grande parte dos plásticos contêm na sua composição compostos nitrogenados, que por combustão liberam gás cianídrico. Devido à liberação de cianeto de hidrogênio durante a queima de diversos tipos de plástico, as vítimas de incêndios eventualmente têm como causa morte por envenenamento.  Na tragédia da Boate Kiss, em Santa Maria (RS), vários jovens morreram vítimas do incêndio, o fogo entrou em contato com o teto que era de espuma. Esse contato soltou cianeto e os jovens morreram de asfixia.::Como o cianeto de hidrogênio interage com o corpo humano? 
+
+- [x] Processo

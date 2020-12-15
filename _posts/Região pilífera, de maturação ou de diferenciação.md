@@ -1,0 +1,3 @@
+região onde ocorre a maturação das [células](https://www.biologianet.com/biologia-celular/celula-vegetal.htm) dos [tecidos](https://www.biologianet.com/botanica/tecidos-vegetais.htm) primários, diferenciando-se em tipos celulares distintos. Nessa região ocorre também a **absorção de águas e nutrientes do solo**, o que é potencializado pelos pelos absorventes (extensões tubulares de células epidérmicas) que crescem nessa região;
+
+- [x] Processo

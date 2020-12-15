@@ -1,0 +1,3 @@
+região onde se encontra o [meristema](https://www.biologianet.com/botanica/meristemas.htm) primário e onde as novas [células](https://www.biologianet.com/biologia-celular/celula-vegetal.htm) da raiz são produzidas. Essa região, no ápice da raiz, é revestida pela coifa, que se assemelha a um dedal. A coifa é formada por células parenquimáticas e tem como função proteger os [meristemas](meristemas.md) primários da abrasão (desgaste por atrito) com o solo. As células periféricas da coifa secretam uma mucilagem, que lubrifica a [raiz](https://www.biologianet.com/botanica/raiz.htm) enquanto penetra no solo;
+
+- [x] Processo

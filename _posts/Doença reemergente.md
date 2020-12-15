@@ -1,0 +1,3 @@
+As doenças são reemergentes quando são conhecidas há algum tempo, estavam controladas, mas agora retornaram, causando preocupação aos seres humanos. As doenças podem aparecer novamente quando, por exemplo, um novo vetor é inserido no local. A reemergência também pode indicar problemas na vigilância sanitária.
+
+Como exemplo de doença reemergente, podemos citar a [[dengue]], uma doença viral transmitida pelo mosquito [[Aedes aegypti]]. Ela emergiu no Brasil em 1982 com uma epidemia em Roraima e, posteriormente, foi erradicada, após uma campanha contra a febre amarela que acabou com todos os vetores. Entretanto, o mosquito retornou e, com ele, a doença, que mata várias pessoas todos os anos.- [ ] Processo 

@@ -1,0 +1,3 @@
+ -   Partem do encéfalo e da medula
+-   Atingem todas regiões do corpo
+- [x] Processo

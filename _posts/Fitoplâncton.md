@@ -1,0 +1,1 @@
+fitoplâncton: organismos produtores (fotossintetizadores), representados principalmente por dinoflagelados e diatomáceas, constituem a base de sustentação da cadeia alimentar nos mares e lagos . São responsáveis por mais de 90% da fotossíntese no planeta. - [ ] Processo 

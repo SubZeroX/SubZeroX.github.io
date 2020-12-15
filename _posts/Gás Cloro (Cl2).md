@@ -1,0 +1,2 @@
+Gás extremamente tóxico e de odor irritante, encontrado formando parte de cloretos e cloratos, sobretudo na forma de cloreto de sódio nas minas de sal gema e dissolvido na água do mar. O cloro é aplicado principalmente no tratamento de águas, no branqueamento durante a produção de papel e na preparação de diversos compostos clorados, como por exemplo o hipoclorito de sódio e hipoclorito de cálcio.
+- [x] Processo

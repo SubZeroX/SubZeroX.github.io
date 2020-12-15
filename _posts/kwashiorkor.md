@@ -1,0 +1,1 @@
+Criança com sintomas de kwashiorkor, doença causada pela falta de proteínas na dieta e caracterizada por grande inchaço do abdome; frequentemente essa forma de malnutrição causa prejuízos ao desenvolvimento do sistema nervoso, levando ao retardamento mental. - [ ] Processo 
