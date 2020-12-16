@@ -1,0 +1,3 @@
+Os físicos definem calor específico como a quantidade de calor que um grama de uma substância precisa absorver para aumentar sua temperatura em 1 °C (um grau Celsius), sem que haja mudança de estado físico
+
+O calor específico da água é extraordinariamente alto. Se colocarmos  a mesma quantidade de água e de ferro no forno, veremos que o ferro  se aquece muito mais depressa que a água. Por outro lado, o ferro também se resfria mais depressa que a água. Para uma mesma quantidade de calor absorvida, o ferro se aquece dez vezes mais que a água e, portanto, possui calor específico dez vezes menor que ela.- [ ] Processo 

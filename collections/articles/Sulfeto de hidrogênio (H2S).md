@@ -1,0 +1,3 @@
+É um gás incolor, de cheiro desagradável característico, que devido a sua toxidez é capaz de irritar os olhos e/ou atuar no sistema nervoso e respiratório podendo matar (de acordo com a concentração), um ser humano em questão de minutos::Sulfeto de hidrogênio é tóxico?. Ocorrências de H2S podem ser encontradas nas jazidas de petróleo e gás natural, na extração de sal (cloreto de sódio), nas águas subterrâneas, em esgotos sanitários, etc. Nos segmentos industriais o H2S é oriundo de processos de remoção de gases ácidos, de tratamento de efluentes, de fermentações, etc.
+
+- [x] Processo

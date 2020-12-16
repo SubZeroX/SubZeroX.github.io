@@ -1,0 +1,1 @@
+À medida que o sangue se torna mais ácido, por conta do aumento de gás carbônico, o centro respiratório promove a aceleração dos movimentos associados à respiração. Assim, a frequência e a amplitude da respiração aumentam.- [ ] Processo 

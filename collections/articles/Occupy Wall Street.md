@@ -1,0 +1,1 @@
+Nos Estados Unidos, o movimento Occupy Wall Street, contra a desigualdade econômica e social e igualmente conectado em redes no ciberespaço e no espaço urbano, tornou-se o evento do ano e afetou a maior parte do país, a ponto de a revista Time atribuir ao "Manifestante" o título de personalidade do ano. - 2011

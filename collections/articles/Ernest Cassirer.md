@@ -1,0 +1,1 @@
+O filósofo alemão Ernest Cassirer (1864-1945) preferiu definir o ser humano como homo simbollicus ao invés de homo sapiens, para acentuar a capacidade simbólica humana como o elemento que mais nos destaca com relação aos outros seres. Somente o ser humano (até onde sabemos) é capaz de produzir signos artificiais que possuem um significado intencionalmente atribuído- [ ] Processo 

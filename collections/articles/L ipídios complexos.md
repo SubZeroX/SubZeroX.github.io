@@ -1,0 +1,1 @@
+Associação de ácidos graxos, álcool e um outro composto de natureza química diferente. CHONFUm bom exemplo são os fosfolipídios (ou fosfatídeos), que resultam da associação de ácidos graxos, alcool e radicais fosfatos (PO43-) - são encontrados na membrana plasmática das células - [ ] Processo 

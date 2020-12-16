@@ -1,0 +1,11 @@
+Na língua existem várias expressões denominadas _articuladores do discurso_. Uma delas é a expressão «_No que_ \[x\] **_a_**...).A questão que coloca exibe essa expressão com recurso ao verbo _tanger_.
+
+Assim, a expressão correta  é «No que _tange_ **_a_** ...». Esta expressão  é equivalente à expressão «_No que_ diz respeito **_a_**...»; « _No que_ toca _**a**_ ...»; « _No que_ se refere _**a**_...».
+
+No _[Novo Dicionário Aurélio da Língua Portuguesa](https://www.wook.pt/livro/novo-dicionario-aurelio-da-lingua-portuguesa-aurelio-buarque-de-holanda-ferreira/12944944)_, pode ler-se: «Interessa-se por tudo o que _tange **à**_ condição humana dos cidadãos» (<=> Interessa-se por tudo o diz respeito **_à condição humana dos cidadãos_**/ Interessa-se por tudo o que **_lhe_** diz respeito).
+
+O verbo [tanger](https://www.conjugacao.com.br/verbo-tanger/), como tantos outros, tem várias aceções, o que faz com que, dentro da tipologia verbal, pertença a diferentes classes. O verbo  _tanger_ é um verbo  [transitivo direto](https://ciberduvidas.iscte-iul.pt/consultorio/perguntas/sobre-verbos-transitivos-directos-e-indirectos/26758), quando significa _tocar, atingir, roçar_, como em  «O arranha-céus parece tanger as nuvens», em que o constituinte  _as nuvens_ é o _complemento direto_ (O arranha-céus parece tangê-_las_). No entanto, os verbos quando introduzidos na expressão «No que \[x\] a... » passam a ser regidos pela preposição _**a**_, que introduz um _complemento indireto._
+
+Repare-se:  «No que toca _**à condição humana**_ /No que **_lhe_** toca;  No que diz respeito _**à condição humana/**_ No que _**lhe**_ diz respeito_**.»**_
+
+Pode consultar estas e outras aceções do verbo **_tanger_** em [_Dicionário Houaiss da língua portuguesa_ ou no](https://www.fnac.pt/mp8641761/Dicionario-Houaiss-Da-Lingua-Portuguesa-Novo?origin=GOOGLE_MKTPLACE&gclid=Cj0KCQiAuZXQBRDKARIsAMwpUeQo05BsuyNUEFW3CZ-5yJBRk01QzB78IFHFGR6vqp6s4hWSKbR2i20aAsMGEALw_wcB) _[Novo Dicionário Aurélio da Língua Portuguesa](https://www.wook.pt/livro/novo-dicionario-aurelio-da-lingua-portuguesa-aurelio-buarque-de-holanda-ferreira/12944944)_.

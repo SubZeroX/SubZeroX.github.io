@@ -1,0 +1,1 @@
+A fenomenologia foi uma corrente filosófica criada pelo filósofo alemão Edmund Husserl, que afirmava que o ser humano deveria abandonar as perguntas sobre o mundo em si, mas buscar resolver perguntas do mundo em sua cabeça. Não haveria, assim, mais problemas para escolher entre o idealismo e o realismo- [ ] Processo 

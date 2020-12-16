@@ -1,0 +1,22 @@
+
+Os grupos com maior representatividade ou poder, mesmo que compostos por poucos indivíduos, são chamados de maiorias políticas, enquanto os grupos com menor representatividade - ainda que possuam mais integrantes - são considerados minorias políticas. Aspecto qualitativo e não quantitativo
+Jornalista Karina Janz
+Importante lembrar que as relações de desigualdade que fazem parte do ambiente social foram histórica e culturalmente construídas, a partir de um processo político que, ao longo do tempo, produziu algum tipo de exclusão. Neste sentido, a ideia de minoria está ligada à representatividade que um determinado grupo social apresenta em termos de hegemonia. Constituem-se como minorias, atualmente, no Brasil, grupos relacionados a questões de gênero, etnia / raça, religiosidade, entre outras, que travam constantes batalhas para, nas palavras de Gramsci, "disputar hegemonia", na tentativa de garantir direitos e oportunidades iguais aos cidadãos.
+Raça x Etnia
+Raça: Classificação das diferenças humanas a partir de características biológicas (fenotípicas ou genotípicas).A partir dos esforços do antropólogo Franz Boas (culturalismo), o termo Raça Humana passou a ser considerado equivocado cientificamente, e, então, as diferenças biológicas entre os seres humanos - especialmente marcadas pela cor da pele - foram consideradas insuficientes
+Etnia: características socioculturais que são responsáveis pela formação da subjetividade no contexto de determinado grupo.
+O termo "raça" continua a ser utilizado na Sociologia e por movimentos sociais identitários - como o movimento negro - para compreender e denunciar as estruturas sociais que permanecem discriminatórias, à revelia da ciência. O termo "raça" é utilizado, portanto, em uma acepção sociopolítica, e não biológica
+Racismo
+A fala de Gilberto Freyre é clara: o racismo no Brasil não aconteceu da mesma forma que nos estados do Sul dos Estados Unidos, onde leis racistas explícitas vigoravam, instaurando um sistema institucionalmente segregador. Mas isso não significa que não tenha havido discriminação racial no Brasil: nós vivemos um racismo à brasileira, implícito, velado e profundamente enraizado na estrutura social brasileira.
+O sociólogo Florestan Fernandes denota que ao mesmo tempo em que o país se inseriu na moderna ordem capitalista burguesa, conservou uma estrutura racista que impossibilitou a inserção dos negros de forma efetiva na sociedade, perpetuando, assim, a discriminação e o preconceito (segundo a análise do autor são mecanismos de defesa dos privilégios econômicos, políticos e sociais das classes abastadas)
+Povos indigenas
+SPI e visão integracionista
+Em 1910, foi fundado o Serviço de Proteção aos Índios, tendo à frente o Marechal Rondon. Possuía basicamente dois objetivos: proteger as comunidades indígenas do extermínio que estavam sofrendo há séculos e favorecer a ocupação do território nacional, em grande parte ainda desconhecido do governo há pouco tempo convertido ao republicanismo.
+Porém, a visão predominante no SPI considerava as comunidades indígenas inferiores do ponto de vista cultural; era obrigação do Estado, portanto, integrá-las à civilização de forma gradual por meio da educação e do trabalho, para que, aos poucos, abandonassem seu modo de vida primitivo em troca da vida civilizada que a sociedade de matriz ocidental prometia.
+FUNAI e visão preservacionista
+Fundação Nacional do Índio, fundada em 1967
+Esforços do antropólogo Darcy Ribeiro, que propagavam uma visão totalmente diferente daquela defendida anteriormente pelo SPI. Essa visão, tentava respeitar a história, as origens, o modo de vida próprio, e, também, a concepção de que as culturas indígenas são culturas particulares que possuem outras formas de ser e estar, que, portanto, compreendidos e respeitados em suas peculiaridades.
+Ações afirmativas
+Têm por objetivo enfrentar os efeitos das discriminação imposta ao longo da história sobre grupos e segmentos sociais. Baseadas na igualdade material de Aristóteles
+A sociedade civil é entendida como o espaço da socialização, da interação social entre os indivíduos e no qual estes elaboram suas demandas sociais e políticas que, invariavelmente, devem ser levadas ao Estado.
+Segundo o sociólogo Norberto Bobbio, nenhuma decisão tomada por maioria deve limitar os direitos da minoria, de um modo especial o direito de tornar-se maioria, em paridade de condições;- [ ] Processo 

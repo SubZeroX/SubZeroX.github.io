@@ -1,0 +1,2 @@
+É um gás incolor, muito solúvel na água, gás irritante para as mucosas dos olhos e vias respiratórias. Em concentrações elevadas, pode provocar efeitos agudos e crônicos na saúde humana, especialmente em nível de aparelho respiratório e  agravar problemas cardiovasculares pela presença simultânea do SO2 e de partículas na atmosfera. É um gás que contribui para o efeito estufa. Países industrializados emitem grandes quantidades desse gás na atmosfera, principalmente a partir de centrais termoelétricas à base de petróleo ou carvão e fábricas de ácido sulfúrico.
+- [x] Processo

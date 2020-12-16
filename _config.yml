@@ -85,8 +85,7 @@ exclude:
   - README.md
   - CNAME
 
-collections:
-  collections_dir: collections
-  posts:
+  collections:
+  articles:
     output: true
-    permalink: /:collections/:path
+    permalink: /:collection/:path
